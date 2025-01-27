@@ -8,13 +8,13 @@ Coconut okra curry - Amma's style
 
 ### For the masala base
 - Onion/Shallots - A big one or 3 or so if shallots
-- Coriander seeds - 2 tbps
-- Cumin - 1/2tbps
+- Coriander seeds - 2tbsp
+- Cumin - 1/2tbsp
 - Curry leaves - a few
 - Fenugreek seeds - 10 pieces
 - Dry red chilli - 3 to 5. Adjust to taste
 - Coconut for cooking(shredded or whatever is good for your grinding) - 1/2 of a 1/2 coconut
-- Tumeric - to taste
+- Turmeric - to taste
 - Tamarind paste - 1 tsp or a little more, adjust to taste
 - Asafoetida - a little, adjust to taste. A little goes a long way
 - Roasted gram(பொட்டுக்கடலை ) - like a half a hand or more. The more you add, thicker your curry will be
@@ -31,7 +31,7 @@ Coconut okra curry - Amma's style
 - Add in red chillies, coriander seeds, cumin, curry leaves and fry them until fragrant
 - Make space in the middle and fry the fenugreek seeds in the oil until fragrant.
 *NOTE* If you over fry them they tend to become bitter and if you under fry them they have a raw aroma to them. You will know it done if its pinkish-brown. 
-- Remove from heat and add in asafoetida, coconut, tumeric, tamarind paste, roasted gram and coconut. Mix them in the tava's residual heat
+- Remove from heat and add in asafoetida, coconut, turmeric, tamarind paste, roasted gram and coconut. Mix them in the tava's residual heat
 - Grind all of this into a paste
 ### Temper and bring it together
 - Again, don't burn it, use medium heat
