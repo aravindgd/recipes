@@ -1,6 +1,6 @@
 ## Title 
 
-Venpongal - Amma's style
+Sweet Pongal - Amma's style
 
 ## Ingredients(for 4 people)
 ### Pongal base
